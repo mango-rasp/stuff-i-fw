@@ -1,3 +1,2 @@
-uhm this definitely isn't the best reference
-but this is mainly stuff i think will be useful during an in person contest (UCF HSPT, etc.)
+This is a reference book that will (hopefully) be used in in-person contests, or online contests that allow templates.
 
